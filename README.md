@@ -13,12 +13,15 @@ Yumeshippers, respectfully, annoy us. If you GENUINELY think you're DATING a fic
   ## Basic host info
 <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/4244ac4bf6881eb15844a6be62e10955.jpg" width="250" height="250"> 
 Melanie - She/It/Any
+
 The one writing these parts, hello :D I'm mostly fronting and dating out partner systems Folly haiiiii my Star  if you're reading thsi I love you
 <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/image_2025-08-17_064242609.png" width="250" height="250"> 
 Jax/Alex - He/It/They/She
+
 Not a polite guy if he doesn't like you, and will just straight up block you if you give bad vibes/do something weird
 <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/image_2025-08-17_063725171.png" width="250" height="250"> 
 Dreamer/Astra - She/It/They/Shine
+
 Ageslider but more mature than most the people in our system
 > Information will be updated if needed. If you have any questions feel free to ask, however, you are not entitled to an answer.
 
