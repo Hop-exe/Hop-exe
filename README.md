@@ -5,7 +5,7 @@ We just don't really like the ponytown community as a whole, we only play for th
 
 
 ## BYI
-lso if you identify as an irl/fictionkin/yumeshipper/whatever, interact with your own caution in mind because while we may respect you and that you identify as such, those identity may go against our moral values and, while we may be polite and refer to you with names/pronouns/etc you wish, we try to keep our conversations and social life grounded in reality. We hold this opinion based off experience both personally and as a third party to our friends' experiences. You are free to ask in-game why we hold these beleifs, but do not expect or demand a response.
+Also if you identify as an irl/fictionkin/yumeshipper/whatever, interact with your own caution in mind because while we may respect you and that you identify as such, those identity may go against our moral values and, while we may be polite and refer to you with names/pronouns/etc you wish, we try to keep our conversations and social life grounded in reality. We hold this opinion based off experience both personally and as a third party to our friends' experiences. You are free to ask in-game why we hold these beleifs, but do not expect or demand a response.
 - This mostly applies to people who believe in "doubles", but even if you don't, keep this in mind.
 Yumeshippers, respectfully, annoy us. If you GENUINELY think you're DATING a fictional character do not interact with us. Double applies to if you believe you're dating the source of one of our alters. This doesn't apply to regular selfshipping/oc x canon/etc.
 
@@ -14,13 +14,13 @@ Yumeshippers, respectfully, annoy us. If you GENUINELY think you're DATING a fic
 <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/4244ac4bf6881eb15844a6be62e10955.jpg" width="250" height="250"> 
 Melanie - She/It/Any
 
-- The one writing these parts, hello :D I'm mostly fronting and dating out partner systems Folly
+- The one writing these parts, hello :D I'm mostly fronting ugh
 
 
 <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/image_2025-08-17_064242609.png" width="250" height="250"> 
 Jax/Alex - He/It/They/She
 
-- Not a polite guy if he doesn't like you, and will just straight up block you if you give bad vibes/do something weird
+- Not a polite guy if he doesn't like you, will just straight up block you if you give bad vibes/do something weird
 
 
 <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/image_2025-08-17_063725171.png" width="250" height="250"> 
