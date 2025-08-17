@@ -11,16 +11,22 @@ Please interact with us in a way that is grounded in reality. We hold this value
 Yumeshippers, respectfully, annoy us. If you GENUINELY think you're DATING a fictional character do not interact with us. Double applies to if you believe you're dating the source of one of our alters. This doesn't apply to regular selfshipping/oc x canon/etc.
 
   ## Basic host info
+  
 <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/4244ac4bf6881eb15844a6be62e10955.jpg" width="250" height="250"> 
 Melanie - She/It/Any
+
 - The one writing these parts, hello :D I'm mostly fronting and dating out partner systems Folly
+
 
 <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/image_2025-08-17_064242609.png" width="250" height="250"> 
 Jax/Alex - He/It/They/She
+
 - Not a polite guy if he doesn't like you, and will just straight up block you if you give bad vibes/do something weird
+
 
 <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/image_2025-08-17_063725171.png" width="250" height="250"> 
 Dreamer/Astra - She/It/They/Shine
+
 - Ageslider but more mature than most the people in our system
 
 > Information will be updated if needed. If you have any questions feel free to ask, however, you are not entitled to an answer.
