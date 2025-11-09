@@ -4,4 +4,4 @@
 
 Check our pronouns page for more info :3 we have an en.pronouns for my info and a pronouns.cc with system info
 
-WORKING ON A DANDYS WORLD SERVER THATS 1000000% OK WITH SYSTEMS AND STUFF!! It's still in wip but if you wanna join just ask and I'll friend you wherever
+Wanna join a Dandy's world server that's completely fine with systems and stuff??? Go https://discord.gg/VjgQeSqr
