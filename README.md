@@ -1,4 +1,4 @@
-![txt](https://64.media.tumblr.com/56f75da29ad83154373cfe2542f9a425/430a7ea9f964edfd-77/s75x75_c1/732262fe11ee29941308c4422e7af5785ab84647.gifv) **ʺ Hmm, last I checked, yup!! ʺ**
+
 
 ![divider](https://64.media.tumblr.com/7f2dce749166a15e7a18a6d698fa7204/9182bf022cb7c9fb-1c/s1280x1920/7ec658f57a4b1b73a688f882ebdf7a295d21685d.pnj)
 
