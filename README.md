@@ -4,6 +4,8 @@
 
 BOBBIE / MEL | Any Prns
 
+Bobette fictive!! Doubles uhm,, come give me a wet kiss on my mouth right now /silly
+
 Ask before c+h i guess?? idrc tho ill just hide you if u dont errrr.. whispers are fine im usually offtab or doing something else so it'll help me see ur messages better !! I'm always open to interact so dw!!
 I'm a big fan of plenty medias honestly you could give me anything and I've probably seen it once, hyperfixated on dandys world atm tho!! and baublebasket hehe
 I'm kind of a flirt if we're close/ur okay with it and make odd jokes a lot of the times so lmk if ur uncomfy or anything
