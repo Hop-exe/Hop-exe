@@ -17,3 +17,6 @@ You can always ask for system sites and such but we update them a lot so if we s
 I'll add more later I'm just lazy
 
 ![divider](https://64.media.tumblr.com/7f2dce749166a15e7a18a6d698fa7204/9182bf022cb7c9fb-1c/s1280x1920/7ec658f57a4b1b73a688f882ebdf7a295d21685d.pnj)
+
+Art of my by myself blegggg
+![art](https://file.garden/ZgXR2Yo9YF7EdA0d/bleh.png)
