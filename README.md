@@ -10,7 +10,7 @@ I'm kind of a flirt if we're close/ur okay with it and make odd jokes a lot of t
 
 You can always ask for system sites and such but we update them a lot so if we say no its probs cause we don't have one at the moment or its a heavy WIP, plus  u can ask for our discord too blehhhh..
 
-**DNI -** pretty basic.. no proshippers, anyone under 16, or anyone who considers themself toxic/semitoxic?? wtaf does that even mean
+**DNI -** pretty basic.. no proshippers or ANYONE who willingly uses any ship title thing?? yes i think you are gross and weird and you guys should get help, anyone under 16, or anyone who considers themself toxic/semitoxic?? wtaf does that even mean
 
 **THIN ICE -** Yumeshippers, "IRLs"
 
