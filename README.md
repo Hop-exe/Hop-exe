@@ -1,5 +1,17 @@
-<h1 align="center">The SnowBurrow System</h1>
+![txt](https://64.media.tumblr.com/56f75da29ad83154373cfe2542f9a425/430a7ea9f964edfd-77/s75x75_c1/732262fe11ee29941308c4422e7af5785ab84647.gifv) **ʺ Hmm, last I checked, yup!! ʺ**
 
-19 year old OSDDID system blehhhhh!! Host is Mel/Bobette I'm usually the one playing but it can depend on pony (or not i like showing ours off) Interacting is completely ok!! we may be a bit awkwards sometimes but who isnt, just please dont if youre under the age of 16 :3 systems are encouraged to int we only have like 1 sys friend
+![divider](https://64.media.tumblr.com/7f2dce749166a15e7a18a6d698fa7204/9182bf022cb7c9fb-1c/s1280x1920/7ec658f57a4b1b73a688f882ebdf7a295d21685d.pnj)
 
-Under 16 + if u consider urself "toxic"??????? DNIIIIIII
+BOBBIE / MEL | Any Prns
+
+Ask before c+h i guess?? idrc tho ill just hide you if u dont errrr.. whispers are fine im usually offtab or doing something else so it'll help me see ur messages better !! I'm always open to interact so dw!!
+I'm a big fan of plenty medias honestly you could give me anything and I've probably seen it once, hyperfixated on dandys world atm tho!! and baublebasket hehe
+I'm kind of a flirt if we're close/ur okay with it and make odd jokes a lot of the times so lmk if ur uncomfy or anything
+
+You can always ask for system sites and such but we update them a lot so if we say no its probs cause we don't have one at the moment or its a heavy WIP, plus  u can ask for our discord too blehhhh..
+
+**DNI -** pretty basic.. no proshippers, anyone under 16, or anyone who considers themself toxic/semitoxic?? wtaf does that even mean
+**THIN ICE -** Yumeshippers, "IRLs"
+I'll add more later I'm just lazy
+
+![divider](https://64.media.tumblr.com/7f2dce749166a15e7a18a6d698fa7204/9182bf022cb7c9fb-1c/s1280x1920/7ec658f57a4b1b73a688f882ebdf7a295d21685d.pnj)
