@@ -1,23 +1,28 @@
+❝ Hm, last I checked, yep!! ❞ ![](https://64.media.tumblr.com/ea8cc8ce6d9de0706d29cdefa7e5245b/3e8f7b4a428fb6ed-25/s75x75_c1/41d5f94e161ee4c40cf5438090046d6b818ec410.gifv)
+
+![](https://64.media.tumblr.com/7a18fa905c3f5a363063513df5b9d8bd/28895a601437c0e6-ad/s640x960/77f8c7b747fe46257afe3680b8f5717015edc7b3.pnj)
+
+── .✦ BOBBIE ⋮ SHE/IT ![](https://64.media.tumblr.com/6a0e35ef4f0db0eb92ceb3a0a18cbf00/7f3d4be7fc6cd9ab-69/s75x75_c1/457ca93b9157ad0195e26dd4ed01d6109e8f0a15.gifv)
+
+![](https://64.media.tumblr.com/ea315071fded8f517b1ac4242328d79d/90c5cf42958e75f8-4e/s75x75_c1/e0af7da49000de0166df6199660f895552b122ab.gifv) I'm 19 Y/O!! English speaking + learning russian :3 A system too but I don't really talk about it to new friends/non-systems. If u wanna talk to me more ask for my discord!! Definitely looking to make more system friends so if u r one then come grab me.. /silly ₍ᐢ. .ᐢ₎
+
+![](https://64.media.tumblr.com/6d7221216d1a1fff0f5d8a40be9b8553/32df1e51a0d429d1-ca/s400x600/60dd4d60cde609a2226ec9478179d1eca000525e.pnj)
+
+⋆˚࿔ DNI ![](https://64.media.tumblr.com/d10e720cd211fb86a8857e94af8b1575/88b685697c130c9e-11/s75x75_c1/5b6b759fd5d2033418c028b58070082145d9e0a4.gifv) 
+
+. . General criteria, Proshippers/Darkshippers/Whatever they call themselves, problematic fandoms (few exceptions), fakeclaimers, under 16s, will update as needed  
+
+![](https://64.media.tumblr.com/de3ddff3a39ad981c1766da60dac810f/0267cbb62ed7e3e6-db/s75x75_c1/7bde32aec8eeedd466ef9fc5aa252032444ff035.gifv) Thin Ice ( ;´ - `;)
+
+. . Yumeshippers, IRLs, people who believe in "doubles" (especially applies to the previously mentioned + fictionkins), hazbin/helluva fans
+   
+  ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰
 
 
-![divider](https://64.media.tumblr.com/7f2dce749166a15e7a18a6d698fa7204/9182bf022cb7c9fb-1c/s1280x1920/7ec658f57a4b1b73a688f882ebdf7a295d21685d.pnj)
+![](https://64.media.tumblr.com/d64f81101be5c92d82cc97e24be79e14/9d382ea627a19039-fb/s75x75_c1/920829f5d7acb3912001d22344128f261ea6409a.gifv) Extra *!!*
 
-BOBBIE / MEL | Any Prns  
-Bobette fictive!! Doubles uhm,, come give me a wet kiss on my mouth right now /silly
+. . Ask to C+H!! We block/hide freely and such. I'm usually offtab so W2I!! Also I'm very awkward in convos but am always open to be friends.. Tonetags are appreciated but not required!!
 
-Ask before c+h i guess?? idrc tho ill just hide you if u dont ask  
-Whispers are encouraged im usually offtab or doing something else so it'll help me see ur messages better + I'm always open to interact!!  
-I'm a big fan of plenty medias honestlycurrently fixated on DW..  
-I'm kind of a flirt if we're close/ur okay with it and make odd jokes a lot of the times so lmk if ur uncomfy or anything  
+![](https://64.media.tumblr.com/7a18fa905c3f5a363063513df5b9d8bd/28895a601437c0e6-ad/s640x960/77f8c7b747fe46257afe3680b8f5717015edc7b3.pnj)
 
-Ask for our discord if you want to talk more :33 I'm looking to make us more system friends blehhh we have like 2
-
-**DNI -** pretty basic.. no proshippers/darkshippers *(or ANYONE who willingly uses any ship title thing?? yes i think you are gross and weird and you guys should get help)*, anyone under 16, or anyone who considers themself toxic/semitoxic?? *(wtaf does that even mean)*  
-**THIN ICE -** Yumeshippers, "IRLs"  
-
-I'll add more later I'm just lazy
-
-![divider](https://64.media.tumblr.com/7f2dce749166a15e7a18a6d698fa7204/9182bf022cb7c9fb-1c/s1280x1920/7ec658f57a4b1b73a688f882ebdf7a295d21685d.pnj)
-
-Art of me by myself blegggg
-![art](https://file.garden/ZgXR2Yo9YF7EdA0d/bleh.png)
+Github created for me by [Sevi <33](https://github.com/angelifying) I LOVE YOU 
