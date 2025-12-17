@@ -14,7 +14,7 @@
 
 ![](https://64.media.tumblr.com/de3ddff3a39ad981c1766da60dac810f/0267cbb62ed7e3e6-db/s75x75_c1/7bde32aec8eeedd466ef9fc5aa252032444ff035.gifv) Thin Ice ( ;´ - `;)
 
-. . Yumeshippers, IRLs, people who believe in "doubles" (especially applies to the previously mentioned + fictionkins), hazbin/helluva fans
+. . Yumeshippers, chronically online, people who believe in "doubles" (especially applies to the previously mentioned + fictionkins), hazbin/helluva fans
    
   ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰. ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰
 
