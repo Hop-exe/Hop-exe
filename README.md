@@ -21,7 +21,7 @@
 
 ![](https://64.media.tumblr.com/d64f81101be5c92d82cc97e24be79e14/9d382ea627a19039-fb/s75x75_c1/920829f5d7acb3912001d22344128f261ea6409a.gifv) Extra *!!*
 
-. . C+H is fine!! We block/hide freely and such. I'm usually offtab so W2I!! Also I'm very awkward in convos but am always open to be friends.. Tonetags are appreciated but not required!!
+. . C+H is fine!! We block/hide freely and such. I'm usually offtab so W2I!! Also I'm very awkward in convos but am always open to be friends.. Tonetags are appreciated but not required!! If I have the giftbox + pony emoji that means the skin im on is gifted to me, compliments will be forwarded to the creator <3
 
 ![](https://64.media.tumblr.com/7a18fa905c3f5a363063513df5b9d8bd/28895a601437c0e6-ad/s640x960/77f8c7b747fe46257afe3680b8f5717015edc7b3.pnj)
 
