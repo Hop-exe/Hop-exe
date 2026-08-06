@@ -6,6 +6,7 @@
    SYS ⁃ 20 ⁃ She/They/It<br>
    ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶<br>
   Nominated as Ponytowns Veeronica !! THANK YOU !! 
+  
 <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/scrolling-gif%20(2).gif"/><br>
 <p align="center">
    <img src="https://64.media.tumblr.com/3fc502bdcc9362fe888fbe5073d7b2ae/4ae708fa88fd6797-25/s75x75_c1/a96fa0947e1c76d07e12e4de7d0a23143b5229ff.gifv"/><b>⊹ ˖ Ი𐑼 DNI</b><br>
