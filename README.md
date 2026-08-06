@@ -2,9 +2,10 @@
   <img src="https://64.media.tumblr.com/d6a11c465d792d698be7ee92c7e02fc1/6142e2ac3932b180-8b/s2048x3072/99f27662817481696b04c42d0305d0a9b63d1b01.pnj"/>
 <p align="center">
    <b>˚ʚ♡ɞ˚</b><br>
-   <i>Bobbie/Veeronica</i><br>
+   <i>Mel/Veeronica</i><br>
    SYS ⁃ 20 ⁃ She/They/It<br>
    ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶<br>
+  Nominated as Ponytowns Veeronica !! THANK YOU !! 
 <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/scrolling-gif%20(2).gif"/><br>
 <p align="center">
    <img src="https://64.media.tumblr.com/3fc502bdcc9362fe888fbe5073d7b2ae/4ae708fa88fd6797-25/s75x75_c1/a96fa0947e1c76d07e12e4de7d0a23143b5229ff.gifv"/><b>⊹ ˖ Ი𐑼 DNI</b><br>
